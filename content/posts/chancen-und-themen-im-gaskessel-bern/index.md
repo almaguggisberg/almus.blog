@@ -14,7 +14,7 @@ Der Gaskessel Bern, ein Ort zum Leben und Lernen. So durfte ihn auch Xenia Unsel
 
 Julian Kolly, Alma Guggisberg
 
-![Xenia Unseld vor ihren Lieblings Graffiti auf dem Gaskessel Areal.](img_2751-min.jpg)
+![Xenia Unseld vor ihren Lieblings Graffiti auf dem Gaskessel Areal. Foto: Alma Guggisberg](img_2751-min.jpg)
 
 Der Gaskessel Bern, viele bunte Räume. Ein lautes Geräusch kommt aus einem Raum. Der grosse Kessel wird geputzt. Die Treppe hinunter kommt Xenia Unseld mit einem Lächeln auf dem Gesicht. Sie arbeitet im Gaskessel Bern als Lichttechnikerin.  Was sie begeistert an ihrer Arbeit und am Gaskessel, erzählt sie entspannt in der Küche.
 
